@@ -1,2 +1,2 @@
 ### Hi there 👋
-En reconversion professionnel à Ada Tech School !
+En reconversion professionnelle à Ada Tech School depuis octobre, je présente mes projets d'écoles et mes projets professionnelles. 
