@@ -1,4 +1,4 @@
 ### Hi there 👋
 
-- Ada Tech School, France 📚
+- Ada Tech School, Nantes, France 📚
 - Front-end Developper 👩‍💻
